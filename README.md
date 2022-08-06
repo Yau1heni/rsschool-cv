@@ -1,1 +1,1 @@
-https://Zheka90by.github.io/rsschool-cv
+https://Yau1heni.github.io/rsschool-cv
